@@ -1,0 +1,2 @@
+# trading
+soportes y resistencia
